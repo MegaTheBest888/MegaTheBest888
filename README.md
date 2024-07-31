@@ -1,3 +1,5 @@
 **Eae Galera**
 
-Nah i´d win
+Quando um palhaço entra num castelo ele não vira rei, mas o castelo vira um circo.
+ig: @migskz__
+
